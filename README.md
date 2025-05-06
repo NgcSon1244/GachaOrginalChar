@@ -1,0 +1,2 @@
+# GachaOrginalChar
+Umm, nothing herre
